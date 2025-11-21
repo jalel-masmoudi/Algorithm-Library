@@ -300,7 +300,7 @@ MIT License - Feel free to use for learning and projects!
 
 **Jalel Masmoudi**  
 Computer Science Student | North American University of Sfax  
-📧 Contact: jalel.masmoudi@example.com
+📧 Contact: m.j.masmoudi1@gmail.com
 
 ---
 
